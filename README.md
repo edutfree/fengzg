@@ -1,16 +1,8 @@
 # 风之谷官网地址 fengzg最新入口
 
-永久官网：[fengzg.net](https://cn3.fzg2023.com/#/register?code=S2uaalYf)
+永久官网：[fengzg.net](https://cn1.fzg25.xyz/#/register?code=S2uaalYf)
 
-备用地址：[fzg2023.com](https://cn3.fzg2023.com/#/register?code=S2uaalYf)
-
----
-
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
+备用地址：[fzg2023.com](https://cn1.fzg25.xyz/#/register?code=S2uaalYf)
 
 ## 简介
 
